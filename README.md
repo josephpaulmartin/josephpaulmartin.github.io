@@ -1,1 +1,0 @@
-# josephpaulmartin.github.io
